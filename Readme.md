@@ -9,6 +9,11 @@
 *Chemistry*
 * [Marina High School](https://www.marinavikings.org/) 2011-2015
 
+## Research Interests
+
+* Atmospheric Chemistry
+* Air Quality
+* Aerosols
 
 
 
